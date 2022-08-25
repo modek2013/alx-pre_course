@@ -1,1 +1,3 @@
-My first readme
+i love this course
+its simply the best
+
